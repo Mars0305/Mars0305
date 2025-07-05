@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me rodriguezs.mateoa@gmail.com
 - 😄 Pronouns: Mars
-- ⚡ Fun fact: C is a piece of trash fr
+- ⚡ Fun fact: Javier>>>Pedro
 
 <!---
 Mars0305/Mars0305 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
